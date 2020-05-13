@@ -23,3 +23,4 @@ while (alive) {
 
 ** après cet interlude publicitaire, nous allons retourner à notre programme habituel.**
 
+Mais ce n'était pas ma grand-mêre, loin de là.
