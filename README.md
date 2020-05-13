@@ -23,3 +23,14 @@ while (alive) {
 
 ** après cet interlude publicitaire, nous allons retourner à notre programme habituel.**
 
+## coder un monde a decouvrir
+
+- pour cela il faut de la patience 
+- du coeur a l ouvrage 
+- et le bonheur est au rendez vous
+
+> ce paragrpahe n en est pas un ,il est la pour l effet de style ... ou pas 
+
+| oui | non | 50/50 |
+| --- | --- | --- |
+
