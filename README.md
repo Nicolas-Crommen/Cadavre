@@ -27,3 +27,6 @@ Mais ce n'était pas ma grand-mêre, loin de là.
 allez encore un :innocent:
 
 *Qui s'endort avec le cul qui gratte, se réveille avec le doigt qui pue. Moralité: ne remets pas à demain ce que tu peux faire aujourd'jui.*
+
+Ce n'était pas ma grand-mère en effet ! Mais bien mon grand-père. J'en venais à me demander si mon dernier verre n'était pas celui en trop. 
+c3ce72702f22b9b00c8d96192a86ef3aea96430e
