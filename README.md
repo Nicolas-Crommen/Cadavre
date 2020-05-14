@@ -25,3 +25,5 @@ while (alive) {
 
 Mais ce n'était pas ma grand-mêre, loin de là. 
 allez encore un :innocent:
+
+*Qui s'endort avec le cul qui gratte, se réveille avec le doigt qui pue. Moralité: ne remets pas à demain ce que tu peux faire aujourd'jui.*
