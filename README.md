@@ -25,3 +25,5 @@ while (alive) {
 
 Mais ce n'était pas ma grand-mêre, loin de là. 
 allez encore un :innocent:
+
+Ce n'était pas ma grand-mère en effet ! Mais bien mon grand-père. J'en venais à me demander si mon dernier verre n'était pas celui en trop. 
